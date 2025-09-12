@@ -1,1 +1,2 @@
 # Lab Tasks 2 Folder!
+ALL 6 TASKS ARE INCLUDED IN THIS FOLDER
